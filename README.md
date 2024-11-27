@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me .em manuella.machado@estudante.iftm.edu.br..
 - 😄 Pronouns: ..ela/dela.
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: .danço e sou karateca há 11 anos..
 
 <!---
 manuella1004/manuella1004 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
