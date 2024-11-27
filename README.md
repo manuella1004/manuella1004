@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @manuella1004
-- 👀 I’m interested in ...
+- 👀 I’m interested in ..💼💲.
 - 🌱 I’m currently learning .java,html e css..
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me .em manuella.machado@estudante.iftm.edu.br..
